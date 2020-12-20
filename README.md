@@ -2,4 +2,4 @@
 website (Private)
 
 Welcome!!
-<< https://minakami-yuuki.mysxl.cn/#tsukihime >>
+<< https://minakami-yuuki.mysxl.cn >>
